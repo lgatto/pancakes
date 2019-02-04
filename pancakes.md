@@ -6,3 +6,6 @@
 4. Stack the pancakes as you make them between sheets of greaseproof paper on a plate fitted over simmering water, to keep them warm while you make the rest.
 5. To serve, sprinkle each pancake with freshly squeezed lemon juice and caster sugar, fold in half, then in half again to form triangles, or else simply roll them up. Serve sprinkled with a little more sugar and lemon juice and extra sections of lemon.
 
+# Tips
+
+- Delicious with nutella!
